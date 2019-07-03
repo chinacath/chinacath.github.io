@@ -1,6 +1,6 @@
 # 圣座关于中国神职人员民事登记的牧灵指导
 
-## 文章说明
+## 概要
 
 - 作者: 梵蒂冈新闻网
 - 来源: [https://www.vaticannews.va/zh/vatican-city/news/2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.html](https://www.vaticannews.va/zh/vatican-city/news/2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.html)
