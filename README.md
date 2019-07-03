@@ -1,1 +1,5 @@
-# chinacath.github.io
+# 在中国的天主教会重要事件
+
+## 中梵关系
+
+- [中梵关系重要事件](/vatican)
