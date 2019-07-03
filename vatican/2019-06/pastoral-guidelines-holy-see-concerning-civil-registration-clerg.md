@@ -1,5 +1,14 @@
 # 圣座关于中国神职人员民事登记的牧灵指导
 
+## 文章说明
+
+- 作者: 梵蒂冈新闻网
+- 来源: [https://www.vaticannews.va/zh/vatican-city/news/2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.html](https://www.vaticannews.va/zh/vatican-city/news/2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.html)
+
+## 内容
+
+![在中国的天主教会 (AFP or licensors)](../../images/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.jpg)
+
 一段时间以来，中国大陆的主教们请求圣座就必须提交民事登记申请时所应采取的态度做出具体的指示。就这一点，众所周知，许多牧人都深感困惑，因为这一登记方式——按照宗教活动的新规定是必需的，否则就不能从事牧灵活动——几乎总是要签署一份文件，声明接受中国独立、自主、自办教会的原则，尽管中国当局承诺也会尊重天主教教义。
 
 中国现实的复杂性，加之在整个国家似乎不存在规范宗教事务的统一实施常规，也就特别难以对这一问题发表意见。一方面，圣座无意强迫任何人的良心。另一方面，考虑到秘密状态的经验并非教会生活的常规，且历史告诉我们，只有当迫切渴望维护自身信仰的完整性时，牧人和信友们才会这样做（参见《教宗本笃十六致在中华人民共和国的天主教会的主教、司铎、度奉献生活者及教友的信》8，二〇〇七年五月二十七日）。为此，圣座继续要求神职人员的民事登记应保证尊重所涉及人员的良心及他们深刻的公教信念。事实上，只有这样，才能既有助于教会的合一，也有助于天主教徒为中国社会的益处做贡献。
