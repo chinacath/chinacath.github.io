@@ -6,7 +6,7 @@
 - 日期: 2019年07月05日
 - 来源: [https://oldyosef.hkdavc.com/?p=1264](https://oldyosef.hkdavc.com/?p=1264)
 
-> 6月28日晚上，我见到一份教廷的文告。我身为荣休主教、枢机，不能静静的接受它，一定要提出我的质疑。我心血来潮，29日晚登上去罗马的飞机。
+> 6月28日晚上，我见到一份教廷的文告（“[圣座关于中国神职人员民事登记的牧灵指导](../2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.md)” 全文）。我身为荣休主教、枢机，不能静静的接受它，一定要提出我的质疑。我心血来潮，29日晚登上去罗马的飞机。
 
 ## 内容
 
@@ -20,7 +20,7 @@
 <p><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">星期三晚上有人通知我教宗请我去共进晚餐，也会有国务卿陪随。</font></font></span></p>
 <p><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">在晚餐上争吵是不礼貌的。</font><font style="vertical-align: inherit;">我们谈了目下香港的情形，至于那文告，我只在最后几分钟向教宗提起了，教宗说了几次「我会关注这事」，这也是我带回来的唯一的一句话。</font><font style="vertical-align: inherit;">我也交了一份我的质疑给国务卿，他在席上没有说什么话。</font></font></span></p>
 <p><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">我的此行算值不值得？</font><font style="vertical-align: inherit;">以下是我提出的质疑。</font></font></span></p>
-<p style="text-align: center;"><span style="color: #000000;"><strong><u><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">对「圣座关于中国神职人员民事登记的牧灵指导」</font></font></span></u></strong></span></p>
+<p style="text-align: center;"><span style="color: #000000;"><strong><u><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">对「<a href="https://chinacath.github.io/vatican/2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.html">圣座关于中国神职人员民事登记的牧灵指导</a>」</font></font></span></u></strong></span></p>
 <p style="text-align: center;"><span style="color: #000000;"><strong><u><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">陈日君枢机提出几点质疑</font></font></span></u></strong></span></p>
 <p><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">首先，相当不寻常的是：这么重要的文件竟以「圣座」名义颁布，没有指出是圣座哪个部门，更没有官员签字负责。</font></font></span></p>
 <p><span style="color: #000000;"><font style="vertical-align: inherit;"><font style="vertical-align: inherit;">1. 文件第一节提出问题。</font></font></span></p>
