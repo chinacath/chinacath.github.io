@@ -8,5 +8,6 @@
 
 ## 中国神职人员民事登记的牧灵指导
 
-- [圣座关于中国神职人员民事登记的牧灵指导](2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.md) by 梵蒂冈新闻网
-- [圣座为中国神职人员提供的牧灵指南旨在尊重良心自由](2019-06/tornielli-china-catholic-clergy-state-register-respect-conscienc.md) by 梵蒂冈新闻网
+- [圣座关于中国神职人员民事登记的牧灵指导](2019-06/pastoral-guidelines-holy-see-concerning-civil-registration-clerg.md) via 梵蒂冈新闻网
+- [圣座为中国神职人员提供的牧灵指南旨在尊重良心自由](2019-06/tornielli-china-catholic-clergy-state-register-respect-conscienc.md) via 梵蒂冈新闻网
+- [我去了哪里？”Dubia” by Cardinal Zen on the pastoral guidelines of the Holy See concerning the civil registration of the clergy in China](2019-07/joseph-zen-01.md) via 陈日君枢机
